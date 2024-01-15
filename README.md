@@ -1,1 +1,1 @@
-# Galaxy-Tab-SM-T515N-
+# Galaxy-Tab-SM-T515N
